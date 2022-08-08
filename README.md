@@ -1,9 +1,10 @@
 ### hajikim.github.io
 https://www.youtube.com/hajikim
-https://www.instagram.com/hajis_records/
+My [Youtube channel](https://www.youtube.com/hajikim)
+My [Instagram](https://www.instagram.com/hajis_records/) 
 
 
-##4 Hour Total Breakdown
+### 4 Hour Total Breakdown
 	
 60 min: Warm Up 
 	► 10 min. arm stretches
@@ -30,3 +31,6 @@ https://www.instagram.com/hajis_records/
 		OR
 	► Run the concerto (20 min)
 Run the Sonata / Solo Piece (20 min)
+
+#### CJ the X: [Taste] (https://www.youtube.com/watch?v=GPrNWuppMcc&t=2251s&ab_channel=CJTheX) 
+"Nobody thinks that Mcdonald's is the height of taste, despite the fact that everyone kind of likes it and it's everywhere. It's popularity is almost indicative of its inferior quality. Just liking the easy thing to like that everyone else likes is the opposite of taste. Taste is about being select and specific not general and inoffensive. Taste.
