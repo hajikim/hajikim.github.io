@@ -45,7 +45,7 @@ My [Instagram](https://www.instagram.com/hajis_records/)
 		
 	► Run the concerto (20 min)
 	
-Run the Sonata / Solo Piece (20 min)
+	► Run the Sonata / Solo Piece (20 min)
 
 #### CJ the X: [Taste] (https://www.youtube.com/watch?v=GPrNWuppMcc&t=2251s&ab_channel=CJTheX) 
 "Nobody thinks that Mcdonald's is the height of taste, despite the fact that everyone kind of likes it and it's everywhere. It's popularity is almost indicative of its inferior quality. Just liking the easy thing to like that everyone else likes is the opposite of taste. Taste is about being select and specific not general and inoffensive. Taste."
