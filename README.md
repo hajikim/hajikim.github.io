@@ -1,1 +1,2 @@
 # hajikim.github.io
+hi
