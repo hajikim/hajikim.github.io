@@ -72,10 +72,58 @@ ie. Who has the main melody and who is the rhythm section.
 ✽ practice excerpts for auditions by playing them with your friends and recordings to understand ^ 
 
 # Favs of 2022
-a. *Everything Everywhere All at Once* 2022 dir. Daniel Kwan and Daniel Scheinert
 
-b. *Dune* 2021 dir. Denis Villeneuve
+a. *Everything Everywhere All at Once* (2022) dir. Daniel Kwan and Daniel Scheinert
 
-c. *Top Gun: Maverick* 2022 dir. Joseph Kosinski.
+	☻ Soundtrack
+	
+	☻ title sequences (ex. PART 1: EVERYTHING) visually and auditorily overwhelming and stunning 
+	
+	☻ Organic humor 
+	
+	☻ Jobu Tupaki's costumes
+	
+	☻ Experimental, creative, and heartfelt. 
+	
 
-d. *Call Me By Your Name* 2017 dir. Luca Guadagnino
+b. *Dune* (2021) dir. Denis Villeneuve
+
+	☻ Insect themed conceptual vehicles 
+	
+	☻ Visually immersive and auditorily stunning. 
+	
+	☻ Soundtrack fits the mood perfectly. *Gom Jabbar* is chef's kiss. 
+	
+	- second act too slow
+	
+	
+
+c. *Top Gun: Maverick* (2022) dir. Joseph Kosinski.
+
+	☻ A real appreciation for "real"ness, in a world saturated with CGI and camera tricks, thanks to Tom Cruise's love of stunts. 
+	
+	☻ A perfect, golden model for a "standard" action movie. 
+	
+	☻ Thrilling, heartfelt, and a healthy dose of 'Murica. 
+	
+	☻ "Top Gun Anthem" by Harold Faltermeyer & Steve Stevens may be my favorite theme ever. 
+	
+	☻ Anthem + title card entrances, give the editor a raise. 
+	
+
+d. *Call Me By Your Name* (2017) dir. Luca Guadagnino
+
+	☻ Aesthetically, this is everything. I would like to be Somewhere in Northern Italy at all times. 
+	
+	☻ Title sequence is beautiful. 
+	
+	☻ Lighting, color palette, fonts, soundtrack, setting, landscape, fits perfectly.
+	
+	☻ Hallelujah Junction by John Adams 
+	
+	- I have many problems with the story 
+	
+	- Oliver is manipulative and predatory 
+	
+	- This would have made much more [sense](https://markolmsted.medium.com/whats-wrong-with-call-me-by-my-name-and-how-it-could-have-been-fixed-2b2003c1b3fc) 
+
