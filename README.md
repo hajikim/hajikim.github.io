@@ -48,22 +48,34 @@ My [Instagram](https://www.instagram.com/hajis_records/)
 	► Run the Sonata / Solo Piece (20 min)
 
 #### CJ the X: [Taste] (https://www.youtube.com/watch?v=GPrNWuppMcc&t=2251s&ab_channel=CJTheX) 
-"Nobody thinks that Mcdonald's is the height of taste, despite the fact that everyone kind of likes it and it's everywhere. It's popularity is almost indicative of its inferior quality. Just liking the easy thing to like that everyone else likes is the opposite of taste. Taste is about being select and specific not general and inoffensive. Taste."
+< "Nobody thinks that Mcdonald's is the height of taste, despite the fact that everyone kind of likes it and it's everywhere. It's popularity is almost indicative of its inferior quality. Just liking the easy thing to like that everyone else likes is the opposite of taste. Taste is about being select and specific not general and inoffensive. Taste."
 
 ## The KEY
 
-the key to BC is bow control
+✽ the key to BC is bow control
 
-the key to JS is creativity and slow practice
+✽ the key to JS is creativity and slow practice
 
-the key to SS is smiling
+✽ the key to SS is smiling
 
 ## Performance
 
-The completion of a piece is when the audience hears it. 
+✽ The completion of a piece is when the audience hears it. 
 
-The marriage between audibility and colors and intimacy. 
+✽ The marriage between audibility and colors and intimacy. 
 
 ## Chamber music
 
-You must know your role in the music, and know what the others' roles are as well. Who has the main melody and who is the rhythm section. 
+✽ You must know your role in the music, and know what the others' roles are as well. 
+ie. Who has the main melody and who is the rhythm section. 
+
+✽ practice excerpts for auditions by playing them with your friends and recordings to understand ^ 
+
+# Favs of 2022
+a. *Everything Everywhere All at Once* 2022 dir. Daniel Kwan and Daniel Scheinert
+
+b. *Dune* 2021 dir. Denis Villeneuve
+
+c. *Top Gun: Maverick* 2022 dir. Joseph Kosinski.
+
+d. *Call Me By Your Name* 2017 dir. Luca Guadagnino
