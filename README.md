@@ -50,6 +50,11 @@ My [Instagram](https://www.instagram.com/hajis_records/)
 #### CJ the X: [Taste] (https://www.youtube.com/watch?v=GPrNWuppMcc&t=2251s&ab_channel=CJTheX) 
 < "Nobody thinks that Mcdonald's is the height of taste, despite the fact that everyone kind of likes it and it's everywhere. It's popularity is almost indicative of its inferior quality. Just liking the easy thing to like that everyone else likes is the opposite of taste. Taste is about being select and specific not general and inoffensive. Taste."
 
+## Technique
+
+➼ **Legato** needs to be done in the left hand as well. Set up your hand position so that you don't need to move anything but the fingertip for the next note. Perhaps even the next two notes? Use your own discretion. 
+
+
 ## The KEY
 
 ✽ the key to BC is bow control
