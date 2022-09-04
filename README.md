@@ -63,6 +63,8 @@ My [Instagram](https://www.instagram.com/hajis_records/)
 
 ✽ the key to SS is smiling
 
+✽ the key to HK is worship and creativity
+
 ## On Performance
 
 ✽ The completion of a piece is when the audience hears it. 
