@@ -63,11 +63,33 @@ My [Instagram](https://www.instagram.com/hajis_records/)
 
 ✽ the key to SS is smiling
 
-## Performance
+## On Performance
 
 ✽ The completion of a piece is when the audience hears it. 
 
 ✽ The marriage between audibility and colors and intimacy. 
+
+### IT
+
+**@zannimask:** (https://www.tiktok.com/@zannimask/video/7138097419769728262?is_from_webapp=1&sender_device=pc&web_id=7139663859371312646)
+
+"Maybe that's the "it" thing that everyone's always talking about. "She has *it*, he has *it*..." 
+
+What is that "it" thing? It's the love. Because the love is everything. 
+
+
+That's what it is for me. Just a love of doing it, because if you love doing it, it's gonna really show, even if the moves aren't necessarily happy-go-lucky. The love shines through and the love is what gets people to play with it. And playing with art is how you get creative. 
+
+### **Bohemian Rhapsody movie:**
+
+Mary Austin: What's it like, singing for all those people?
+
+Freddie Mercury: When I know they're listening, when I know I really have them, I couldn't sing off-key if I tried. I am exactly the person I was always meant to be. I'm not afraid of anything.
+
+### @chrismzcarrell (https://www.tiktok.com/@chrismzcarrell/video/7137433944173120810?is_from_webapp=1&sender_device=pc&web_id=7139663859371312646)
+
+First things first, if you feel like you have to show emotion and you're aware of it, your brain's not focusing on the right thing. If I'm working with an engine and aligns with the orchestration and characterisation, what comes through my voice is always enough emotionality. It's all in my lungs, and all in my heart and I'm just channeling what that engine is sending me through my voice. You need to be using the right engine. 
+
 
 ## Chamber music
 
