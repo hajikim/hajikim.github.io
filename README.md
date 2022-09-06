@@ -92,6 +92,7 @@ Freddie Mercury: When I know they're listening, when I know I really have them, 
 
 First things first, if you feel like you have to show emotion and you're aware of it, your brain's not focusing on the right thing. If I'm working with an engine and aligns with the orchestration and characterisation, what comes through my voice is always enough emotionality. It's all in my lungs, and all in my heart and I'm just channeling what that engine is sending me through my voice. You need to be using the right engine. 
 
+"Our job is to move people. Transport them somewhere new and move them"
 
 ## Chamber music
 
